@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on anything that's causing you a problem. I like solving problems.
 - 📫 How to reach me
   - Webex
-  - Smoke signals
  
 Some things I've learned (and try my best to practice) to help communicate more effectively...
 
